@@ -23,7 +23,7 @@
 ⟨ sora , yáng , maber , max , ero , zen , zanne , shin , kath ⟩
 
 • 𝙤𝙣𝙡𝙞𝙣𝙚 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 ′;
-—— ⟨ chi , suki , zizi , liam , kosh , izzy , shio , kimoi , aiko , uni , lyra , zuthro , rora , ghia , az , toshi , shia , kei ⟩
+—— ⟨ chi , suki , zizi , liam , kosh , izzy , shio , kimoi , aiko , uni , lyra , zuthro , rora , ghia , az , toshi , shia , kei , todo ⟩
 
            ! in progress , more info coming soon. 
     love ya x always take care of yourselves. ⁠♡
