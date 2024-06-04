@@ -1,7 +1,7 @@
   → BEST IF READ IN PC.
 
 ⟩ 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚 ;
-· a minor ` please limit nsfw jokes unless we're close or js friends . let yourself talk wild , (i dont rlly take anything personal, unless it's serious.) . i enjoy physical pain , such as punches , slaps, and getting stabbed, etc. + adrenaline rush .  , 
+· a minor ` please limit nsfw jokes unless we're close or js friends . let yourself talk wild , (i dont rlly take anything personal, unless it's serious.) . i enjoy physical pain , such as punches , slaps, and getting stabbed, etc. + adrenaline rush (?) ,, in other words, this user is 50% a masochist.  , 
 
 — multifandom . ambivert . awkward . omnisexual & cupioromantic . chionophile . allergic to people irl .
 
