@@ -4,8 +4,8 @@
 · a minor ` please limit nsfw jokes unless we're close or js friends . let yourself talk wild , (i dont rlly take anything personal, unless it's serious.)
 
 — multifandom . ambivert . awkward . 
-|| • 𝗶𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁 𝗻𝗼𝘁𝗲 ! - don't expect me to be bubbly all the time . laggy / low internet connection . i have attachment issues . can be sensitive sometimes ..
-· clingy, or distant at times . comfort , feel free to vent , but don't always expect me to reply , though I am a good listener . this app is connected to my dump acc and disc . i take 𝘀𝗼𝗺𝗲 things seriously ..
+|| • 𝗶𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁 𝗻𝗼𝘁𝗲 ! - don't expect me to be bubbly all the time . laggy / low internet connection . attachment issues . can be sensitive sometimes .ghoster. (?)
+· clingy, or distant at times . comfort , feel free to vent , but don't always expect me to reply , though I am a good listener . this app is connected to my dump acc and disc . i take 𝘀𝗼𝗺𝗲 things seriously .. i adore cat pics.// animals, including you.
 
  a fellow music lover , pls dont be shy to give suggestions . 
   also if anything, i could be very inappropriate or rude at times , so please feel free to correct me or tell me that you're uncomfortable with my actions › as they'd just pop/randomly show up .
