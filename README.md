@@ -21,7 +21,7 @@
 [ currently keeping it all together , thus in the process of healing , please be patient . ]
 
 𝘍𝘢𝘯𝘥𝘰𝘮𝘴 𝘤𝘶𝘳𝘳𝘦𝘯𝘵𝘭𝘺 𝘪𝘯 ;
-· one piece , gintama , jjba , bsd , jjk , tokyo revengers , aot , hxh , black clover , vinland saga , haikyuu , + more 
+· one piece , gintama , jjba , bsd , jjk , tokyo revengers , aot , hxh , black clover , vinland saga , haikyuu , saiki k , blue lock , + more 
 
 𝘐𝘯𝘵'𝘴 ;
 · > ask in whisps for c+h > unless we're already friends . ROHAN cosplayers (pls iont bite.) 
@@ -30,10 +30,10 @@
 · proshippers , racists , sexists , etc. (?)
 
 • 𝙨𝙥𝙚𝙘𝙞𝙖𝙡𝙞𝙯𝙚𝙙 𝙗𝙚𝙞𝙣𝙜𝙨 `;
-⟨ sora , yáng , maber , max , ero , zen , zanne , shin ⟩
+⟨ sora , yáng , maber , max , ero , zen , zanne , shin , yeds ⟩
 
 • 𝙤𝙣𝙡𝙞𝙣𝙚 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 ′;
-—— ⟨ risa , chi , suki , zizi , eve , kath , liam , kosh , izzy , shio , kimoi , aiko , uni , lyra , zuthro , rora , ghia , az , toshi , shia , kei , todo , shoto ⟩
+—— ⟨ risa , chi , suki , zizi , eve , kath , liam , kosh , izzy , shio , kimoi , aiko , uni , lyra , zuthro , rora , ghia , az , toshi , shia , kei , todo , shoto/tsukki ⟩
       -𝙄 𝙝𝙖𝙫𝙚 𝙬𝙖𝙮 𝙩𝙤𝙤 𝙢𝙖𝙣𝙮 𝙥𝙚𝙤𝙥𝙡𝙚 𝙄 𝙘𝙖𝙧𝙚 𝙛𝙤𝙧. 𝘼𝙣𝙙 𝙄 𝙙𝙤𝙣'𝙩 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙡𝙤𝙨𝙚 𝙩𝙝𝙚𝙢, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙙𝙤𝙣'𝙩 𝙚𝙫𝙚𝙧 𝙡𝙚𝙖𝙫𝙚 𝙢𝙚. `i love everyone i know equally , and i value them a lot`
 
            ! in progress , more info coming soon. 
