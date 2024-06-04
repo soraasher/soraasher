@@ -4,6 +4,7 @@
 
  
   → 𝙩𝙧𝙖𝙙𝙞𝙩𝙞𝙤𝙣𝙖𝙡 + 𝙙𝙞𝙜𝙞𝙩𝙖𝙡 𝙖𝙧𝙩𝙞𝙨𝙩 ,, a mangaka/author in the making
+  
 [ currently keeping it all together , thus in the process of redo , please be patient . ]
 
 𝘍𝘢𝘯𝘥𝘰𝘮𝘴 𝘤𝘶𝘳𝘳𝘦𝘯𝘵𝘭𝘺 𝘪𝘯 ;
