@@ -5,11 +5,20 @@
 
 — multifandom . ambivert . awkward . omnisexual & cupioromantic . chionophile . allergic to people irl .
 
-|| • 𝗶𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁 𝗻𝗼𝘁𝗲 ! - don't expect me to be bubbly all the time . laggy / low internet connection . attachment issues . can be sensitive sometimes .ghoster. (?) . talkative , shy .. °
+|| • 𝗶𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁 𝗻𝗼𝘁𝗲 ! - don't expect me to be bubbly all the time . laggy / low internet connection . attachment issues . can be sensitive sometimes .ghoster. (?) . talkative , shy .. ° (* 
 
-· clingy, or distant at times . comfort , feel free to vent , but don't always expect me to reply , though I am a good listener . this app is connected to my dump acc and disc . i take 𝘀𝗼𝗺𝗲 things seriously .. i adore cat pics.// animals, including you.
+°I'm cringe and immature sometimes!
+
+· clingy, or distant at times . comfort , feel free to vent , but don't always expect me to reply , though I am a good listener . 
+
+this app is connected to my dump acc and disc . 
+
+i take 𝘀𝗼𝗺𝗲 things seriously ..
+
+i adore cat pics.// animals, including you.
 
  a fellow music lover , pls dont be shy to give suggestions . 
+ 
   also if anything, i could be very inappropriate or rude at times , so please feel free to correct me or tell me that you're uncomfortable with my actions › as they'd just pop/randomly show up .
   
  } i make jokes such as " kms , smtih , iwd , kys , jump , sm , cm , suck my d/ , etc. " to people who're comfortable with it.
@@ -37,7 +46,7 @@
 
   -𝙄 𝙝𝙖𝙫𝙚 𝙬𝙖𝙮 𝙩𝙤𝙤 𝙢𝙖𝙣𝙮 𝙥𝙚𝙤𝙥𝙡𝙚 𝙄 𝙘𝙖𝙧𝙚 𝙛𝙤𝙧. 𝘼𝙣𝙙 𝙄 𝙙𝙤𝙣'𝙩 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙡𝙤𝙨𝙚 𝙩𝙝𝙚𝙢, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙙𝙤𝙣'𝙩 𝙚𝙫𝙚𝙧 𝙡𝙚𝙖𝙫𝙚 𝙢𝙚. `i love everyone i know equally , and i value them a lot`
       also a friendly reminder ; 
-  ‹  𝐈 𝐜𝐚𝐧'𝐭 𝐚𝐥𝐰𝐚𝐲𝐬 𝐛𝐞 𝐭𝐡𝐞𝐫𝐞 𝐟𝐨𝐫 𝐞𝐯𝐞𝐫𝐲𝐨𝐧𝐞. ›
+  ‹  𝐈 can't always be there for everyone :3 ,, i hope you understand.  ›
     
            ! in progress , more info coming soon. 
     love ya x always take care of yourselves. ⁠♡
