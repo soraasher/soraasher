@@ -1,9 +1,9 @@
   → BEST IF READ IN PC.
 
 ⟩ 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚 ;
-· a minor ` please limit nsfw jokes unless we're close or js friends . let yourself talk wild , (i dont rlly take anything personal, unless it's serious.)
+· a minor ` please limit nsfw jokes unless we're close or js friends . let yourself talk wild , (i dont rlly take anything personal, unless it's serious.) . i enjoy physical pain , such as punches , slaps, and getting stabbed, etc. + adrenaline rush .  , 
 
-— multifandom . ambivert . awkward . 
+— multifandom . ambivert . awkward . omnisexual & cupioromantic . chionophile . allergic to people irl .
 
 || • 𝗶𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁 𝗻𝗼𝘁𝗲 ! - don't expect me to be bubbly all the time . laggy / low internet connection . attachment issues . can be sensitive sometimes .ghoster. (?) . talkative , shy .. °
 
@@ -27,7 +27,7 @@
 · > ask in whisps for c+h > unless we're already friends . ROHAN cosplayers (pls iont bite.) 
 
 𝘋𝘯𝘪'𝘴 ; 
-· proshippers , racists , sexists , etc. (?)
+· proshippers , racists , sexists , bodyshamers , etc. (?)
 
 • 𝙨𝙥𝙚𝙘𝙞𝙖𝙡𝙞𝙯𝙚𝙙 𝙗𝙚𝙞𝙣𝙜𝙨 `;
 ⟨ sora , yáng , maber , max , ero , zen , zanne , shin , yeds ⟩
