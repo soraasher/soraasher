@@ -33,7 +33,7 @@
 ⟨ sora , yáng , maber , max , ero , zen , zanne , shin ⟩
 
 • 𝙤𝙣𝙡𝙞𝙣𝙚 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 ′;
-—— ⟨ risa , chi , suki , zizi , eve , kath , liam , kosh , izzy , shio , kimoi , aiko , uni , lyra , zuthro , rora , ghia , az , toshi , shia , kei , todo ⟩
+—— ⟨ risa , chi , suki , zizi , eve , kath , liam , kosh , izzy , shio , kimoi , aiko , uni , lyra , zuthro , rora , ghia , az , toshi , shia , kei , todo , shoto ⟩
       -𝙄 𝙝𝙖𝙫𝙚 𝙬𝙖𝙮 𝙩𝙤𝙤 𝙢𝙖𝙣𝙮 𝙥𝙚𝙤𝙥𝙡𝙚 𝙄 𝙘𝙖𝙧𝙚 𝙛𝙤𝙧. 𝘼𝙣𝙙 𝙄 𝙙𝙤𝙣'𝙩 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙡𝙤𝙨𝙚 𝙩𝙝𝙚𝙢, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙙𝙤𝙣'𝙩 𝙚𝙫𝙚𝙧 𝙡𝙚𝙖𝙫𝙚 𝙢𝙚. `i love everyone i know equally , and i value them a lot`
 
            ! in progress , more info coming soon. 
