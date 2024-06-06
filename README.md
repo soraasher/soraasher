@@ -17,7 +17,7 @@
 · proshippers , racists , sexists , bodyshamers , etc. (?)
 
 • 𝙨𝙥𝙚𝙘𝙞𝙖𝙡𝙞𝙯𝙚𝙙 𝙗𝙚𝙞𝙣𝙜𝙨 `;
-⟨ sora , yáng , maber , max , ero , zen , zanne , shin , yeds ⟩
+⟨ sora , yáng , maber , nicie , max , ero , zen , zanne , shin , yeds ⟩
 
 • 𝙤𝙣𝙡𝙞𝙣𝙚 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 ′;
 —— ⟨ risa , chi , suki , zizi , eve , kath , liam , kosh , izzy , shio , kimoi , aiko , uni , lyra , zuthro , rora , ghia , az , toshi , shia , kei , todo , shoto/tsukki ⟩
