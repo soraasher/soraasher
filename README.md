@@ -23,5 +23,5 @@
 —— ⟨ liam , kosh , izzy , shio , kimoi , aiko , uni , lyra , zuthro , rora , ghia , az , toshi , shia , kei , todo , shoto/tsukki ⟩
 
 • oldies but goldies. ;'
-- ⟨ risa , chi , suki , zizi , eve , kath ⟩
+– ⟨ risa , chi , suki , zizi , eve , kath ⟩
   
