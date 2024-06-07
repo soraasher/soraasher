@@ -11,7 +11,7 @@
 · one piece , gintama , jjba , bsd , jjk , tokyo revengers , aot , hxh , vinland saga , haikyuu , saiki k , blue lock , dr stone , mlp , + more 
 
 𝘐𝘯𝘵'𝘴 ;
-· > ask in whisps for c+h > unless we're already friends . 
+· > ..
 
 𝘋𝘯𝘪'𝘴 ; 
 · proshippers , racists , sexists , bodyshamers , etc. (?)
