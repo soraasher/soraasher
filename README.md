@@ -6,7 +6,7 @@ gang(s)
 
 friend(s)
 
-} nika , shin , sai , yeds {
+} nika , shin , sai , yeds , koi {
 
 } liam , kosh , aiko , shio , shia , pin , kei , tsukki , uni , lyra , kimoi , izzy {
 
