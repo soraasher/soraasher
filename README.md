@@ -8,7 +8,7 @@ friend(s)
 
 } nika , shin , sai , yeds , koi {
 
-} liam , kosh , aiko , shio , shia , pin , kei , tsukki , uni , lyra , kimoi , izzy , jonah , ruth {
+} liam , kosh , aiko , shio , shia , pin , kei , tsukki , uni , lyra , kimoi , izzy , todo , jonah , ruth {
 
 oldie(s)
 
