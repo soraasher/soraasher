@@ -1,16 +1,16 @@
-gang(s) 
+gangs
 
 ~1 ⟩ ero , max , maber , zanne , zen ⟨
 
 ~2 ⟩ zuthro , toshi , az , rora , ghia ⟨
 
-friend(s)
+friends
 
 } nika , shin , sai , yeds , koi {
 
 } liam , kosh , aiko , shio , shia , pin , kei , tsukki , uni , lyra , kimoi , izzy , todo , jonah , ruth , mimi {
 
-oldie(s)
+oldies
 
 } chi , risa , zizi , zy , suki , eve , yukako {
 
