@@ -15,4 +15,4 @@ oldie(s)
 } chi , risa , zizi , zy , suki , eve , yukako {
 
 
-  ! love you all, pls dont forget me
+  
