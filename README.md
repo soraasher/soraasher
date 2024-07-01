@@ -1,18 +1,18 @@
-gangs
+gangs  ↓
 
-~1 ⟩ ero , max , maber , zanne , zen ⟨
+ ⟩ ero , max , maber , zanne , zen ⟨
 
-~2 ⟩ zuthro , toshi , az , rora , ghia ⟨
+⟩ zuthro , toshi , az , rora , ghia ⟨
 
-friends
+friends  ↓
 
-} nika , shin , sai , yeds {
+} liam , kosh , aiko , shio , kei , lyra , todo {
 
-} liam , kosh , aiko , shio , shia , pin , kei , tsukki , uni , lyra , kimoi , izzy , todo {
+- & everyone else 
 
-oldies
-
-} chi , risa , zizi , zy , suki , eve , yukako {
+oldies  ↓
+      
+} chi , risa , zizi , zy , suki , yukako {
 
 
   
