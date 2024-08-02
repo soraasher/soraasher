@@ -2,11 +2,11 @@ gangs  ↓
 
  ⟩ ero , max , maber , zanne , zen ⟨
 
-⟩ zuthro , toshi , az , rora , ghia ⟨
+⟩ zuthro , toshi , az , rora , ghia , todo , gina ⟨
 
 friends  ↓
 
-} liam , kosh , aiko , shio , kei , lyra , todo {
+} liam , kosh , aiko , shio , kei , lyra {
 
 - & everyone else 
 
