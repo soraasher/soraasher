@@ -5,18 +5,15 @@ WAHAHAHHAHAHAHHHAHAHAHAHHAAHAHAHHAHAHAHAHAHAHAHAHAHHAHAHAHAHAHAHAHAHAHHAHAHHAHAH
  
  
  ·
-      ``oh, w-whoopsie, heh.! 'scuse me!..``
+      
  
- 
- 
-       .         ;          .
- 
+    .                  .
+  
 
-    
+  .                  ·
 
-                         ·
 
-         ·
+·       ;        ·
  
  
  gang(s) 
