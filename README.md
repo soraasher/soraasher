@@ -4,16 +4,16 @@ WAHAHAHHAHAHAHHHAHAHAHAHHAAHAHAHHAHAHAHAHAHAHAHAHAHHAHAHAHAHAHAHAHAHAHHAHAHHAHAH
 
  
  
- ·
+ .
       
  
-    .                  .
+                      
   
 
-  .                  ·
+                    
 
 
-·       ;        ·
+``      ;        ``
  
  
  gang(s) 
