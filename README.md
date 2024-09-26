@@ -10,13 +10,13 @@ hi there . Sakamoto Tatsuma irl , and i'm rarely active on most social media pla
 
 fgs
 
- ⟩ ero , max , maber , zanne , zen ⟨
+  ero , max , maber , zanne , zen 
 
-⟩ zuthro , toshi , az , rora , ghia , todo , gina ⟨
+ zuthro , toshi , az , rora , ghia , todo , gina 
 
 fs
 
-} liam , kosh , aiko , kei , yi , uni {
+ liam , kosh , aiko , kei , yi , uni 
 
 .
 
