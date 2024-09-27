@@ -17,7 +17,7 @@ fgs
 
 fs
 
- ``liam , kosh , aiko , kei , yi , uni`` 
+ ``liam , kosh , aiko , kei , yi , uni , shio `` 
 
 .
 
