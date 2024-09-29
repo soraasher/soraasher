@@ -13,7 +13,7 @@ fgs
 
   ``ero , max , maber , zanne , zen`` 
 
- ``zuthro , toshi , az , rora , ghia , todo , gina``
+ ``zuthro , az , rora , ghia , todo , gina``
 
 fs
 
