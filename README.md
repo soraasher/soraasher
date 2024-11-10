@@ -6,7 +6,8 @@ hi ! . i'm rarely active on most social media platforms  .
 
 
 IRL(s)
- › Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud 
+
+ ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud``
 
 
 .
