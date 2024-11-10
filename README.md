@@ -20,9 +20,13 @@ fgs
 
 fs
 
- ``liam , kosh , aiko , kei , yi , uni , shio , ash , gelly`` 
+ ``liam , kosh , aiko , risa , kei , yi , uni , shio , ash , gelly`` 
 
 .
+
+i cherish every one i become friends with. unless you've done something wrong, consider me as a non existent person. 
+
+! ``i have no real personality`` 
 
 
 
