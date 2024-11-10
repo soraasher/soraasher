@@ -1,6 +1,6 @@
 hi ! . i'm rarely active on most social media platforms  .
 
-—— dc , tt , pt 
+—— dc , pt 
 
   ``;``
 
