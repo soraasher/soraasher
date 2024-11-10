@@ -1,4 +1,9 @@
-hi ! . i'm rarely active on most social media platforms  .
+I'm very friendly, teehee! (dont trust) well, on normal occasions... I have lotsa moodswings, so please when i say something uncomfortable and out of pocket, tell me.
+
+• Usually/Often pretty quiet if I have nothing to talk about 
+
+
+hiya !  i'm rarely active on most social media platforms  
 
 —— dc , pt 
 
