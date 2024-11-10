@@ -1,10 +1,12 @@
-hi there . Sakamoto Tatsuma irl , and i'm rarely active on most social media platforms  .
+hi ! . i'm rarely active on most social media platforms  .
 
+—— dc , tt , pt 
 
   ``;``
 
 
-
+IRL(s)
+ › Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud 
 
 
 .
@@ -17,7 +19,7 @@ fgs
 
 fs
 
- ``liam , kosh , aiko , kei , yi , uni , shio `` 
+ ``liam , kosh , aiko , kei , yi , uni , shio , ash , gelly`` 
 
 .
 
