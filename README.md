@@ -14,7 +14,7 @@ IRL(s)
 
 fgs
 
-  ``ero , max , maber , zanne , zen`` 
+  ⁠♡ ; ``s , e , m , m , z , z , s`` 
 
  ``zuthro , az , rora , ghia , todo , gina``
 
