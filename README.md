@@ -1,4 +1,4 @@
-I'm very friendly, teehee! (dont trust) well, on normal occasions... I have lotsa moodswings, so when i say something uncomfortable and out of pocket, please tell me.
+I'm very friendly, teehee! (dont trust), on normal occasions... rarely have lotsa moodswings, so when i say something uncomfortable and out of pocket, please tell me.
 
 • Always quiet if I have nothing to talk about / randomly stops talking out of blue
 
