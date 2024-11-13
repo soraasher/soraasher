@@ -1,6 +1,6 @@
-I'm very friendly, teehee! (dont trust) well, on normal occasions... I have lotsa moodswings, so please when i say something uncomfortable and out of pocket, tell me.
+I'm very friendly, teehee! (dont trust) well, on normal occasions... I have lotsa moodswings, so when i say something uncomfortable and out of pocket, please tell me.
 
-• Usually/Often pretty quiet if I have nothing to talk about 
+• Always quiet if I have nothing to talk about / randomly stops talking out of blue
 
 
 hiya !  i'm rarely active on most social media platforms  
