@@ -3,16 +3,20 @@ I'm very friendly, teehee! (dont trust), on normal occasions... rarely have lots
 • Always quiet if I have nothing to talk about / randomly stops talking out of blue
 
 
-hiya !  i'm rarely active on most social media platforms  
+hiya !  i'm not that active on most social media platforms  
 
-—— dc , pt 
+—— dc , pt , etc 
+
+>> multi fandom
+
+
 
   ``;``
 
 
 IRL(s)
 
- ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud``
+ ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud , + more ``
 
 
 .
