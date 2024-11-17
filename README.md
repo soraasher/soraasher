@@ -31,7 +31,7 @@ fgs
 
 fs
 
- ``liam , kosh , aiko , risa , kei , yi , uni , shio , ash , gelly`` + more !
+ ``aiko , risa , kei , yi , uni , shio , ash , gelly`` + more !
 
 .
 
