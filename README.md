@@ -3,7 +3,7 @@ I'm very friendly, teehee! (dont trust), on normal occasions... rarely have lots
 • Always quiet if I have nothing to talk about / randomly stops talking out of blue
 
 
-hiya !  i'm not that active on most social media platforms  
+heya!  i'm not that active on most social media platforms  
 
 —— dc , pt , etc 
 
@@ -16,7 +16,7 @@ hiya !  i'm not that active on most social media platforms
 
 IRL(s)
 
- ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud , + more ``
+ ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud , + more/ etc ``
 
 
 .
@@ -29,7 +29,7 @@ fgs
 
 fs
 
- ``liam , kosh , aiko , risa , kei , yi , uni , shio , ash , gelly`` 
+ ``liam , kosh , aiko , risa , kei , yi , uni , shio , ash , gelly`` + more !
 
 .
 
