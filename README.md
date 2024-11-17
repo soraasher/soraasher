@@ -1,9 +1,11 @@
-I'm very friendly, teehee! (dont trust), on normal occasions... rarely have lotsa moodswings, so when i say something uncomfortable and out of pocket, please tell me.
+yooyo, I go by ``tatsuma`` or ``ash``
+
+I'm very friendly, teehee. (dont trust), on normal occasions... rarely have lotsa moodswings, so when i say something uncomfortable and out of pocket, please tell me.
 
 • Always quiet if I have nothing to talk about / randomly stops talking out of blue
 
 
-heya!  i'm not that active on most social media platforms  
+heya!  i'm not that active on most social media platforms ——— -(ask to be mooties)
 
 —— dc , pt , etc 
 
