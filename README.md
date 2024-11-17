@@ -18,7 +18,7 @@ heya!  i'm not that active on most social media platforms ——— -(ask to be 
 
 IRL(s)
 
- ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud , + more/ etc ``
+ ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud , Kyomoto , + more/ etc ``
 
 
 .
