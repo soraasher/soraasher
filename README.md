@@ -1,13 +1,17 @@
 yooyo, I go by ``tatsuma`` or ``ash``
 
-I'm very friendly, teehee. (dont trust), on normal occasions... rarely have lotsa moodswings, so when i say something uncomfortable and out of pocket, please tell me.
+I'm very friendly! well to be specific, I usually am, teehee. (dont trust whatever i say), on normal occasions... i appear to have a lot of moodswings. And when i say something uncomfortable/out of pocket, please tell me so I can adjust for you!! 😁, or not, u can js go fuck urself off —(targeted on last line)
 
-• Always quiet if I have nothing to talk about / randomly stops talking out of blue
+!Important -• Always quiet if I have nothing to talk about / randomly stops talking out of blue
 
+I have a lot of interests! anime, games (maybe), art, stories, music, etc
 
-heya!  i'm not that active on most social media platforms ——— -(ask to be mooties)
+i love yapping . if u know how to get me to talk  , embrace urself for a long period of time 
 
-—— dc , pt , etc 
+(2) Important ;i'm not that active on most social media platforms ——— (I am Chronically online only on Tiktok) 
+
+apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn, etc 
+
 
 >> multi fandom
 
@@ -20,24 +24,38 @@ IRL(s)
 
  ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud , Kyomoto , + more/ etc ``
 
+is preferred to be seen as:
+
+⟩› `` Sakamoto Tatsuma , Riki Nendou ``
 
 .
 
-fgs
+friend groups ↓
 
-  ⁠♡ ; ``s , e , m , m , z , z , s`` 
+ treasured→ ⁠♡ ; ``s , e , m , m , z , z , s`` 
 
  ``zuthro , az , rora , ghia , todo , gina``
 
-fs
+friends ↓
 
- ``aiko , risa , kei , yi , uni , shio , ash , gelly`` + more !
+ ``aiko , risa , kei , uni , shio , ash , gelly`` + more 
+
+ special mention to my adopted kid ↓
+
+ ``yi``
 
 .
 
-i cherish every one i become friends with. unless you've done something wrong, consider me as a non existent person. 
+i cherish every one i become friends with,—— unless you've done something wrong, consider me as a non existent person 
 
-! ``i have no real personality`` 
+
+buckle up if you wanna be my friend, cus u either get treated with these possible vibes;
+
+(1) ' go kys, or i will squeeze you ' , 
+(2) ' HEYAA WHERE MY HUG AT ' ,
+(3) ' wait what ' ,
+(?) /etc .
+
 
 
 
