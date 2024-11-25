@@ -32,33 +32,37 @@ is preferred to be seen as:
 
 friend groups ↓
 
- treasured→ ⁠♡ ; ``s , e , m , m , z , z , s`` 
+ treasured→ (BAAM!) ⁠♡ ; ``e , m , m , z , z`` 
 
- ``zuthro , az , rora , ghia , todo , gina``
+ childhood → (NAMELESS) ; ``? , ? , ?  (they didn't want to be listed)``
+
+ online → (JAUNICE GANG) ; ``zuthro , az , rora , ghia , todo , gina``
 
 friends ↓
 
- ``aiko , risa , kei , uni , shio , ash , gelly`` + more 
+ ``shin, aiko , risa , kei , uni , shio , ash , gelly , sai`` + more 
 
  special mention to my adopted kid ↓
 
  ``yi``
 
+ hey, so! just because i know a lot of people, doesn't mean I'll forget about u. infact, i don't even talk to most of them, but i just put them up cus yeah, they're them i like them theyre they are family
+
 .
 
-i cherish every one i become friends with,—— unless you've done something wrong, consider me as a non existent person 
+i cherish every human, alien, or whatever they are, i become friends with 
 
 
 buckle up if you wanna be my friend, cus u either get treated with these possible vibes;
 
 (1) ' go kys, or i will squeeze you ' , 
-(2) ' HEYAA WHERE MY HUG AT ' ,
+(2) ' HEY SILLY WHERE MY HUG AT ' ,
 (3) ' wait what ' ,
 (?) /etc .
 
 
 
-
+(how the hell do i properly decorate this, plz teach me. *sniffle sniffle*)
 
 .
 
