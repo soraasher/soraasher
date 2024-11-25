@@ -24,7 +24,7 @@ apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn, etc
 
 IRL(s)
 
- ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud , Kyomoto , + more/ etc ``
+ ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud / Kalim Al Asim , Kyomoto , + more/ etc ``
 
 is preferred to be seen as:
 
