@@ -1,8 +1,10 @@
-yooyo, I go by ``tatsuma`` or ``ash``
+nyooyo, I go by ``tatsuma`` or ``ash``
 
 I'm very friendly! well to be specific, I usually am, teehee. (dont trust whatever i say), on normal occasions... i appear to have a lot of moodswings. And when i say something uncomfortable/out of pocket, please tell me so I can adjust for you!! 😁, or not, u can js go fuck urself off —(targeted on last line)
 
 !Important -• Always quiet if I have nothing to talk about / randomly stops talking out of blue
+
+i CANNOT properly give out advice or know how to comfort someone, but I try my best to. Do you have smth to say? Spill it out, I'll listen. Not comfortable talking abt it? that's okay, we could do smth else more fun or js chill, play games, watch & read together, etc. I'll do anything to distract you from having negative thoughts **IF** I feel like it. Overall, I'm not the best person to be vented on, I sincerely apologize.
 
 I have a lot of interests! anime, games (maybe), art, stories, music, etc
 
@@ -63,6 +65,7 @@ buckle up if you wanna be my friend, cus u either get treated with these possibl
 
 
 (how the hell do i properly decorate this, plz teach me. *sniffle sniffle*)
+README! always/ at times updated
 
 .
 
