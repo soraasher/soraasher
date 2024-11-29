@@ -1,6 +1,8 @@
 nyooyo, I go by ``tatsuma`` or ``ash``
 
-I'm very friendly. And when i say something uncomfortable/out of pocket, please tell me so I can adjust for you 😁. Or not, u can js go fuck urself off —(targeted on last line)
+I'm very friendly. yes. 
+
+when i say something uncomfortable/out of pocket, please tell me so I can adjust for you 😁. Or not, u can js go fuck urself off —(targeted on last line)
 
 !Important -• Always quiet if I have nothing to talk about / randomly stops talking out of blue
 
@@ -42,7 +44,7 @@ friend groups ↓
 
 friends ↓
 
-mixed → ``shin, aiko , risa , kei , uni , shio , ash , gelly , sai`` + more 
+mixed → ``shin, aiko , risa , kei , uni , kimoi , ash , gelly , sai`` + more 
 
  special mention to my adopted kid ↓
 
@@ -60,6 +62,7 @@ buckle up if you wanna be my friend, cus u either get treated with these possibl
 (1) ' go kys, or i will squeeze you ' , 
 (2) ' HEY SILLY WHERE MY HUG AT ' ,
 (3) ' wait what ' ,
+(4) ' are you ok ,
 (?) /etc .
 
 
