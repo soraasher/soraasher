@@ -1,6 +1,6 @@
 nyooyo, I go by ``tatsuma`` or ``ash``
 
-I'm very friendly! well to be specific, I usually am, teehee. (dont trust whatever i say), on normal occasions... i appear to have a lot of moodswings. And when i say something uncomfortable/out of pocket, please tell me so I can adjust for you!! 😁, or not, u can js go fuck urself off —(targeted on last line)
+I'm very friendly. And when i say something uncomfortable/out of pocket, please tell me so I can adjust for you 😁. Or not, u can js go fuck urself off —(targeted on last line)
 
 !Important -• Always quiet if I have nothing to talk about / randomly stops talking out of blue
 
@@ -10,7 +10,7 @@ I have a lot of interests! anime, games (maybe), art, stories, music, etc
 
 i love yapping . if u know how to get me to talk  , embrace urself for a long period of time 
 
-(2) Important ;i'm not that active on most social media platforms ——— (I am Chronically online only on Tiktok) 
+(2) Important ;i'm not that active on most social media platforms ——— (though I am Chronically online only on Tiktok) 
 
 apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn, etc 
 
@@ -28,7 +28,7 @@ IRL(s)
 
 is preferred to be seen as:
 
-⟩› `` Sakamoto Tatsuma , Riki Nendou ``
+⟩› `` Sakamoto Tatsuma , Riki Nendou `` and myself, ``Ash``
 
 .
 
@@ -42,7 +42,7 @@ friend groups ↓
 
 friends ↓
 
- ``shin, aiko , risa , kei , uni , shio , ash , gelly , sai`` + more 
+mixed → ``shin, aiko , risa , kei , uni , shio , ash , gelly , sai`` + more 
 
  special mention to my adopted kid ↓
 
