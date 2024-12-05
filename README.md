@@ -1,18 +1,8 @@
 nyooyo, I go by ``tatsuma`` or ``ash``
 
-I'm very friendly. yes. 
+I have a lot of interests! anime, reading, games (maybe), art, stories, music, etc
 
-when i say something uncomfortable/out of pocket, please tell me so I can adjust for you 😁. Or not, u can js go fuck urself off —(targeted on last line)
-
-!Important -• Always quiet if I have nothing to talk about / randomly stops talking out of blue
-
-i CANNOT properly give out advice or know how to comfort someone, but I try my best to. Do you have smth to say? Spill it out, I'll listen. Not comfortable talking abt it? that's okay, we could do smth else more fun or js chill, play games, watch & read together, etc. I'll do anything to distract you from having negative thoughts **IF** I feel like it. Overall, I'm not the best person to be vented on, I sincerely apologize.
-
-I have a lot of interests! anime, games (maybe), art, stories, music, etc
-
-i love yapping . if u know how to get me to talk  , embrace urself for a long period of time 
-
-(2) Important ;i'm not that active on most social media platforms ——— (though I am Chronically online only on Tiktok) 
+Important ;i'm not that active on most social media platforms ——— (though I am Chronically online only on Tiktok) 
 
 apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn, etc 
 
@@ -22,15 +12,6 @@ apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn, etc
 
 
   ``;``
-
-
-IRL(s)
-
- ``› Sakamoto Tatsuma , Rohan Kishibe , Idia Shroud / Kalim Al Asim , Kyomoto , + more/ etc ``
-
-is preferred to be seen as:
-
-⟩› `` Sakamoto Tatsuma , Riki Nendou `` and myself, ``Ash``
 
 .
 
@@ -44,31 +25,18 @@ friend groups ↓
 
 friends ↓
 
-mixed → ``shin, aiko , risa , kei , uni , kimoi , ash , gelly , sai`` + more 
+mixed → ``shin, aiko , risa , kei , uni , kimoi , sai`` + more 
 
  special mention to my adopted kid ↓
 
  ``yi``
 
- hey, so! just because i know a lot of people, doesn't mean I'll forget about u. infact, i don't even talk to most of them, but i just put them up cus yeah, they're them i like them theyre they are family
 
 .
 
 i cherish every human, alien, or whatever they are, i become friends with 
 
 
-buckle up if you wanna be my friend, cus u either get treated with these possible vibes;
-
-(1) ' go kys, or i will squeeze you ' , 
-(2) ' HEY SILLY WHERE MY HUG AT ' ,
-(3) ' wait what ' ,
-(4) ' are you ok ,
-(?) /etc .
-
-
-
-(how the hell do i properly decorate this, plz teach me. *sniffle sniffle*)
-README! always/ at times updated
 
 .
 
