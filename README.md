@@ -1,6 +1,6 @@
 nyooyo, I go by ``tatsuma`` or ``ash``
 
-I have a lot of interests! anime, reading, games (maybe), art, stories, music, etc
+I have a lot of interests! anime, reading, games (maybe), art, stories (especially lore's), music, etc
 
 any pronouns —— aroace
 
