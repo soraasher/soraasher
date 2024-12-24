@@ -2,9 +2,13 @@ nyooyo, I go by ``tatsuma`` or ``ash``
 
 I have a lot of interests! anime, reading, games (maybe), art, stories, music, etc
 
-Important ;i'm not that active on most social media platforms ——— (though I am Chronically online only on Tiktok) 
+any pronouns —— aroace
 
-apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn, etc 
+Important ;me not that active on most social media platforms ——— (I'm Chronically online only on Tiktok) 
+
+please know that i may be rude at times.
+
+apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn , mc , rblx , dn , etc 
 
 
 >> multi fandom
@@ -27,7 +31,7 @@ friends ↓
 
 mixed → ``shin, aiko , risa , kei , uni , kimoi , sai`` + more 
 
- special mention to my adopted kid ↓
+ special mention to my adopted (online) kid ↓
 
  ``yi``
 
