@@ -21,9 +21,9 @@ apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn , mc , r
 
 friend groups ↓
 
- treasured→ (BAAM!) ⁠♡ ; ``e , m , m , z , z`` 
+ treasured→ (BAAM!) ⁠♡ ; ``ero , max , maber , zen , zanne`` 
 
- childhood → (NAMELESS) ; ``? , ? , ?  (they didn't want to be listed)``
+ childhood → (NAMELESS) ; ``sora , kummer , jiyi , miedo , yume , tishina ``
 
  online → (JAUNICE GANG) ; ``zuthro , az , rora , ghia , todo , gina``
 
