@@ -1,4 +1,4 @@
-nyooyo, I go by ``tatsuma`` or ``ash``
+usenyooyo, I go by ``tatsuma`` or ``ash``
 
 I have a lot of interests! anime, reading, games (maybe), art, stories (especially lore's), music, etc
 
@@ -25,7 +25,7 @@ friend groups ↓
 
  childhood → (NAMELESS) ; ``sora , kummer , jiyi , miedo , yume , tishina ``
 
- online → (JAUNICE GANG) ; ``zuthro , az , rora , ghia , todo , gina``
+ online → (JAUNICE GANG) ; ``zuthro , azazel , rora , ghia , todo , gina``
 
 friends ↓
 
