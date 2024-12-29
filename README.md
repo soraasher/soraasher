@@ -1,4 +1,4 @@
-nyooyo, I go by ``tatsuma`` or ``ash``
+nyooyo, I go by ``tatsuma`` , ``ash`` or any names u use is fine
 
 I have a lot of interests! anime, reading, games (maybe), art, stories (especially lore's), music, etc
 
@@ -6,11 +6,11 @@ any pronouns —— aroace
 
 Important ;me not that active on most social media platforms ——— (I'm Chronically online only on Tiktok) 
 
-please know that i may be rude at times.
+and to tell you in advance if you become friends w me, I AM NOT NICE 
+
+.
 
 apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn , mc , rblx , dn , etc 
-
-to tell you in advance if you become friends w me, I AM NOT NICE 
 
 
 >> multi fandom
