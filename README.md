@@ -1,4 +1,4 @@
-usenyooyo, I go by ``tatsuma`` or ``ash``
+nyooyo, I go by ``tatsuma`` or ``ash``
 
 I have a lot of interests! anime, reading, games (maybe), art, stories (especially lore's), music, etc
 
@@ -9,6 +9,8 @@ Important ;me not that active on most social media platforms ——— (I'm Chro
 please know that i may be rude at times.
 
 apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn , mc , rblx , dn , etc 
+
+to tell you in advance if you become friends w me, I AM NOT NICE 
 
 
 >> multi fandom
