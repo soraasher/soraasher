@@ -33,9 +33,9 @@ friends ↓
 
 mixed → ``shin, aiko , risa , kei , uni , kimoi , sai`` + more 
 
- special mention to my adopted (online) kid ↓
+ special mention to my adopted (online) kid/s ↓
 
- ``yi``
+ ``yi , kaori``
 
 
 .
