@@ -32,7 +32,7 @@ friend groups ↓
 
 friends ↓
 
-mixed → ``shin, aiko , risa , kei , uni , kimoi , sai , kosh`` + more 
+mixed → ``shin, aiko , risa , kei , uni , kimoi , sai , kosh , ash`` + more 
 
  special mention to my adopted (online) kid/s ↓
 
