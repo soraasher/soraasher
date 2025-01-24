@@ -4,9 +4,9 @@ I have a lot of interests! anime, reading, games (maybe), art, stories (especial
 
 any pronouns —— aroace
 
-Important ;me not that active on most social media platforms ——— (I'm Chronically online only on Tiktok) 
+Important ; not that active on most social media platforms ——— (I'm Chronically online only on Tiktok) 
 
-💥💥and to tell you in advance if you become friends w me, I AM NOT NICE 
+💥💥to tell you in advance if you become friends w me, I AM NOT NICE and you'll be bored of me in no time
 
 ~ + I usually interact first to everyone. Why? Because if I don't, no one will. So I'm often lonely 😿
 .
@@ -32,7 +32,7 @@ friend groups ↓
 
 friends ↓
 
-mixed → ``shin, aiko , risa , kei , uni , kimoi , sai`` + more 
+mixed → ``shin, aiko , risa , kei , uni , kimoi , sai , kosh`` + more 
 
  special mention to my adopted (online) kid/s ↓
 
@@ -41,12 +41,8 @@ mixed → ``shin, aiko , risa , kei , uni , kimoi , sai`` + more
 
 .
 
-i cherish every human, alien, or whatever they are, i become friends with😼 
+i cherish every human, alien, or whatever they are, i become friends with😼
 
-“ *oh, my dearest and beloved companions, I apologise that I may be very ill mannered to you at times. For I truly care for you, but there are times where I get so pissed off of nothing. I'll never leave you, unless you do something wrong.* “
-
-
-IGNORE ME AND YOU'LL BE IGNORED. HOW YOU TREAT ME IS HOW I'LL TREAT YOU.🙀
 
   
 
