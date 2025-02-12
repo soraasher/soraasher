@@ -17,7 +17,7 @@ friend groups ↓
 
  treasured→ (BAAM!) ⁠♡ ; ``ero , max , maber , zen , zanne`` 
 
- childhood → (NAMELESS) ; ``sora , kummer , jiyi , miedo , yume , tishina ``
+ childhood → (ZERO) ; ``sora , kummer , jiyi , miedo , yume , tishina ``
 
  online → (JAUNICE GANG) ; ``zuthro , azazel , rora , ghia , todo , gina``
 
