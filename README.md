@@ -19,7 +19,7 @@ friend groups ↓
 
  childhood → (ZERO) ; ``sora , kummer , jiyi , miedo , yume , tishina ``
 
- online → (JAUNICE GANG) ; ``zuthro , azazel , rora , ghia , todo , gina``
+ online → (JAUNICE GANG) ; ``zuthro , azaz , rora , ghia , todo , gina``
 
 friends ↓
 
