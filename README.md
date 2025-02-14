@@ -29,7 +29,8 @@ mixed → ``shin, aiko , risa , kei , uni , kimoi , sai , kosh , ash`` + more
 
  ``yi , kaori``
  
+.
 
- i'm a loner even if i know a lot of people 
+      i'm a loner even if i know a lot of people 
 
 
