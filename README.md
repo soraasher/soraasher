@@ -15,7 +15,7 @@ apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn , mc , r
 
 friend groups ↓
 
- treasured→ (BAAM) ⁠♡ ; ``ero , max , maber , zen , zanne`` 
+ treasured→ (BAAM) ⁠♡ ; ``ero , max , maber , zen , zanne , yan`` 
 
  childhood → (ZERO) ; ``sora , kummer , jiyi , miedo , yume , tishina ``
 
