@@ -1,5 +1,4 @@
-
-hi.
+HELLOOOOOOOOOOOOOO
 
 
 apps/games i usually use —— dscd , pytn , twst , lklk , tktk , wbtn , mc , rblx , dn , etc 
@@ -31,6 +30,6 @@ mixed → ``shin, aiko , risa , kei , uni , kimoi , sai , kosh , ash`` + more
  
 .
 
-      i'm a loner even if i know a lot of people 
+     !: i may know a lot of people but honey i'm a loner ★
 
 
