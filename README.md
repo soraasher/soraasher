@@ -17,11 +17,12 @@ friend groups ↓
 
  treasured→ (BAAM) ⁠♡ ; ``ero , max , maber , zen , zanne , yan`` 
 
- childhood → (ZERO) ; ``sora , kummer , jiyi , miedo , yume , tishina ``
+  childhood → (ZERO) ; ``sora , kummer , jiyi , miedo , yume , tishina ``
 
  online → (JAUNICE GANG) ; ``zuthro , azaz , rora , ghia , todo , gina``
 
 friends ↓
+
 
 mixed → ``shin, aiko , risa , kei , uni , kimoi , sai , kosh , ash`` + more 
 
@@ -31,6 +32,6 @@ mixed → ``shin, aiko , risa , kei , uni , kimoi , sai , kosh , ash`` + more
  
 .
 
-     ‘ i may know a lot of people but honey i'm a loner ★
+     ‘ i wanted to include everyone who deserves to be known .
 
 
